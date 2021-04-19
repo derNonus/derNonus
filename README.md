@@ -1,3 +1,3 @@
 ### Hi there 👋
-- 🔭 I’m currently focusing on school 🏫
+- 🔭 Currently focusing on school 🏫
 - 📍 Germany 🇩🇪 🍺
